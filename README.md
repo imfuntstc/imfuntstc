@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @imfuntstc
 - 👀 I’m interested in sports
-- 🌱 I’m currently learning about how to sell on NFT
+- 🌱 I’m currently learning about how to be a seller on NFT
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me you can find me On instagram @imfuntstc
 
